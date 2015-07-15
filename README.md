@@ -1,1 +1,2 @@
 # Just-Started-
+We have just started out chasing dreams. We are setting up our house and getting ready for the greatest chase ever. For now we regret to share with you any of our success, but do visit us sometime later to find out more. We will be updating our dreams and the process of chasing it, through our blog www.dreamersweekend.wordpress.com . Do join us if you find it exciting. We are open and will always be.
